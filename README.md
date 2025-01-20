@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **abhisekkanha601@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/103BRd-CkQlSi8_Eu7QMF1WQ2G6tYaJ4g/view?usp=sharing](https://drive.google.com/file/d/103BRd-CkQlSi8_Eu7QMF1WQ2G6tYaJ4g/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1mv6EKjlutS8dPlemhKxnoz8rCkxd-CRJ/view?usp=drive_link)
 
 - ⚡ Fun fact **I can solve a Rubik's Cube blindfolded in under five minutes.**
 
